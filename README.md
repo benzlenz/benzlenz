@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @benzlenz
+- 👋 Hi, I’m Sam Benjamin
 - 👀 I’m interested in ... Travalling 
 - 🌱 I’m currently learning ... BCA
 - 💞️ I’m looking to collaborate on ... Khuda Jane 
